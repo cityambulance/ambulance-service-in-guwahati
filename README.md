@@ -20,8 +20,7 @@
 
 ## 📞 Contact Us:
 
-Looking for a quick and reliable [**Ambulance Service In Guwahati**](https://www.cityambulance.in/)? Visit our official website and book now.  
-👉 [https://www.cityambulance.in/](https://www.cityambulance.in/)
+If Looking for a quick and reliable Visit our official website and book now [**Ambulance Service In Guwahati**](https://www.cityambulance.in/).  
 
 ---
 
